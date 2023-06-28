@@ -2,6 +2,6 @@
 [![Top Langs](https://github-readme-stats.vercel.app/api/top-langs/?username=yanfengneng&layout=compact)](https://github.com/yanfengneng/github-readme-stats)
 
 
-努力不是想象出来的，加油吧，少年~
+努力不是想象出来的，加油吧...
 
-Your Star, My Power! ❤️
+Your Star, My Power. ❤️
