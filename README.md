@@ -4,4 +4,4 @@
 
 努力不是想象出来的，加油吧，少年~
 
-Your Star, My power! ❤️
+Your Star, My Power! ❤️
